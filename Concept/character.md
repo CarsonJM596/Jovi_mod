@@ -11,11 +11,27 @@
 
 ### Personality
 
-Jovi is a *"lady's"* man, he acts calm under pressure until a girl comes around and he can't help but give a little bit of charm to them. Still at the end of the day what drives him more than anything is seeing the people around him thrive. He's a good person but loses his cool when things get flirty. He play's dumb most of the time but knows exactly what he is doing using his intellect to pull off moves most can't. He is a strong fighter but usually not quite the strongest, he uses his intellect and abliities to defeat his enemies.
+Jovi is the type of guy to play dumb just to get you into the position *you* think you want him in. He deliberately lets others underestimate him, sometimes putting himself in risky situations that force him to think on his feet and develop a strategy on the fly.
+
+Using his charm, quick wit, and intellect, Jovi consistently finds ways to win fights without being the strongest guy in the room. Whether he's outsmarting an enemy or winning over the *ladies*, he's learned time and time again that raw strength isn't always what gets you the results you want. 
+
+It's this willingness to take risks, manipulate expectations, and turn seemingly unfavorable situations to his advantage that makes his Stand, Crush, such a perfect fit for him.
 
 ### Backstory
 
-Jovi is a product of an accident kept secret for far too long. His mother was a beatiful from England who fell deeply in love with a Joestar, but she came to figure she was not the only lover this Joestar had. She was fine with the role of not being the Joestar's main girl until one day, she figured out she was pregnant. Conflicted, she did what she thought was best for the both of them which was keep it a secret. The baby was born without a single Joestar's knowledge one that slipped through the cracks after the mother died soon after the child's birth to an unrelated cause, then soon after the child being quickly taken by the grandparents of the girl (they were brought in on the secret). Jovi went on to live a relatively normal life, despite never knowing his parents. He played sports, loved video games, and was even relatively popular amongst his school. All was normal till he walked home one day and saw a lady being taken advantage of by some sort of creature, this is where he first learned of his stand's ability summoning it on extinct alone. Seeing the creature run off into some sort of portal Jovi Joestar followed it on extinct and found himself in a *bizarre* situation.
+Jovi is the product of an accident kept secret for far too long.
+
+His mother was a beautiful English woman who fell deeply in love with a Joestar. Over time, however, she came to realize that she wasn't the only woman in his life. She had accepted her place as someone other than the Joestar's primary lover until one day, she discovered she was pregnant.
+
+Unbeknownst to the Joestar, she had already figured out the nature of the family she had fallen in love with. Through her intellect and by overhearing conversations never meant for her ears, she came to understand the complicated fate that seemed to follow the Joestars. Not wanting to subject her child to the same fate, she made the difficult decision to keep the pregnancy a secret.
+
+Jovi was born without a single member of the Joestar family knowing he existed. His mother died shortly after his birth from an unrelated cause, leaving her parents to raise him. Honoring their daughter's wishes, his grandparents took him in and kept his existence a secret, allowing him to grow up far removed from the family he never knew he belonged to.
+
+Jovi went on to live a relatively normal life despite never knowing his parents. He played sports, loved video games, and was even relatively popular at school. For all intents and purposes, he was an ordinary teenager.
+
+That all changed one day while he was walking home. He witnessed a woman being attacked by some sort of creature unlike anything he had ever seen. Acting on instinct alone, Jovi's Stand manifested for the first time.
+
+Before he could make sense of what had happened, the creature fled through a mysterious portal. Rather than let it escape, Jovi Joestar followed it on instinct, leaving behind the ordinary life he had always known and finding himself in a truly bizarre situation.
 
 ### Visual Identity
 
